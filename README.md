@@ -1,2 +1,2 @@
-### Ola! Eu sou o Jonatas 👋
+### Ola! Eu sou o Jonatas Gabriel 👋
 
